@@ -1,0 +1,6 @@
+-Skay
+-League of legends #euw/eune
+-93% wr shaco euw 
+-86% wr kassadin eune
+-71% wr twitch eune
+-singed jungle inventor
